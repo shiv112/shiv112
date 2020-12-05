@@ -1,4 +1,9 @@
-### Hi there 👋
+[![Matrix SVG](https://raw.githubusercontent.com/rodrigograca31/rodrigograca31/master/matrix.svg)](https://www.youtube.com/watch?v=SDkAGkd4NLc) 
+
+### नमस्ते (Namaste)🙏🏻, I am Shivam Sahu 👋
+
+- 💬 Ask me about anything, I am happy to help :smile:
+- 🧗 I try to: Go beyond and push the bounds
 
 ### 📺 Latest YouTube Videos
 
