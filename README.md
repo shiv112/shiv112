@@ -6,7 +6,6 @@
 - 🧗 I try to: Go beyond and push the bounds
 
 <br>
-<br>
 
 ### Things I love:
 - Angular <img src="https://media.giphy.com/media/WUlplcMpOCEmTGBtBW/giphy.gif" width="30"> 
