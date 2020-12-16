@@ -5,10 +5,6 @@
 - 💬 Ask me about anything, I am happy to help :smile:
 - 🧗 I try to: Go beyond and push the bounds
 
-### Languages and Tools: 
-
-
-
 <br>
 <br>
 
